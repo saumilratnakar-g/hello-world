@@ -1,4 +1,4 @@
 # hello-world
 just another repo
-yo niggas 
+yo 
 saumil here
